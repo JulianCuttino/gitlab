@@ -1,3 +1,3 @@
-Hey Julian, thank you for being my partner for this lab!!
+Thanks for being my partner!
 
--Brian Brzoska :)
+-Brian Brzoska =)
